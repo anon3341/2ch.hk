@@ -1,0 +1,2 @@
+# 2ch.hk
+Wishmaster
